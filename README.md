@@ -1,0 +1,2 @@
+# HWOCT22.PRACTISE
+Homework of Oct 22,2022
